@@ -15,3 +15,11 @@ https://github.com/bbbaaauuu/wavy-surface/assets/114235448/3d7628de-287a-41d5-bb
 
 https://github.com/bbbaaauuu/wavy-surface/assets/114235448/e3d381f3-7a9d-4d3f-b87f-df64fbc6cb2a
 
+## the item after baking in kiln
+
+During drying, the ceramics sat down, which is why it split into pieces. The largest surviving part after baking:
+
+![5](https://github.com/bbbaaauuu/wavy-surface/assets/114235448/12714bfa-e747-4ac4-b469-0567bbec2797)
+
+![6](https://github.com/bbbaaauuu/wavy-surface/assets/114235448/ad419398-1b5d-4487-9b65-938037abd6e6)
+
